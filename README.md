@@ -1,6 +1,6 @@
 ### Buy Visomitin SKQ1 5ml eye drops ebay
 * [Buy eBay UK/Europe/Asia](https://www.ebay.com/itm/384272697739) 
-* [Buy Bonanza North America](https://www.ebay.com/itm/384272697739) 
+* [Buy Bonanza North America](https://www.bonanza.com/listings/Skulachev-ions-5ml-Eye-Drops/1132025321?fref=tQ8LMNc) 
 
 A few years ago a small molecule [SkQ1](https://en.wikipedia.org/wiki/SkQ) was synthesized by the group of professor [Vladimir P. Skulachev](https://www.youtube.com/watch?v=HxfPTYRmYVM) in the [Moscow State University.](https://en.wikipedia.org/wiki/Moscow_State_University) One part of SkQ1 functions as a molecular “tow truck” carrying the other part of the molecule – an extremely active antioxidant plastoquinone – into mitochondria. Both theoretical calculations and experimental results showed that SkQ1 was delivered into the mitochondria in an extremely targeted and efficient manner. The physics of the mitochondrial membrane and the unique properties of SkQ1 direct it into the inner leaflet of the inner mitochondrial membrane with high precision.
 
