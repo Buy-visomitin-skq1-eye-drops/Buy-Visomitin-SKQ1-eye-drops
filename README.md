@@ -29,5 +29,7 @@ Web of Science ResearcherID
 YouTube
 * [Max Skulachev](https://youtu.be/77q1nkKUkJI)
 
+[Mitotech Develops New Method to Prevent Severe COVID-19](https://en.rusnano.com/press-centre/news/20200415-rusnano-mitotech-develops-new-method-to-prevent-severe-covid-19)
+
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
