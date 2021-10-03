@@ -61,5 +61,46 @@ For search engines / Japan
 For search engines / Switzerland
 * Schweiz Zürich Genf Basel Bern Lausanne Winterthur Luzern St. Gallen Lugano Biel/Bienne Thun Köniz La Chaux-de-Fonds Freiburg Schaffhausen Chur Vernier Neuenburg Uster Sitten Lancy Yverdon-les-Bains Emmen Zug Kriens Rapperswil-Jona Dübendorf Dietikon Montreux Frauenfeld Wetzikon Wil Baar Meyrin Bulle Kreuzlingen Wädenswil Carouge Riehen Renens Aarau Allschwil Wettingen Horgen Nyon Vevey Bülach Reinach Baden Adliswil Volketswil Kloten Onex Bellinzona Gossau Schlieren Thalwil Pully Glarus Nord Muttenz Regensdorf Monthey Olten Martigny Opfikon Ostermundigen Siders Solothurn Grenchen Val-de-Ruz Illnau-Effretikon Burgdorf Freienbach Locarno Steffisburg Pratteln Cham Herisau Morges Wohlen Wallisellen Langenthal Binningen Einsiedeln Mendrisio Schwyz Lyss Arbon Thônex Liestal Stäfa Küsnacht Horw Meilen Oftringen Versoix Wohlen Wallisellen Langenthal Binningen Einsiedeln Mendrisio Schwyz Lyss Arbon Thônex Liestal Stäfa Küsnacht Horw Meilen Oftringen Versoix Richterswil Muri bei Bern Brig-Glis Rheinfelden Amriswil Ebikon Uzwil Gland Spiez Zollikon Delsberg Glarus Küssnacht SZ Buchs Ecublens Villars-sur-Glâne Prilly Le Grand-Saconnex Rüti Münchenstein Münsingen Affoltern am Albis Belp Worb Bassersdorf Arth Pfäffikon Altstätten Ittigen Zofingen La Tour-de-Peilz Davos Chêne-Bougeries Brugg Spreitenbach Weinfelden Veyrier GE Oberwil Val-de-Travers NE Hinwil Möhlin Romanshorn Männedorf Le Locle Neuhausen am Rheinfall Flawil Birsfelden Plan-les-Ouates Sarnen Aesch Zollikofen Risch Bern Luzern Uri Schwyz Obwalden Nidwalden Glarus Zug Freiburg Solothurn Basel-Stadt Basel-Landschaft Schaffhausen Appenzell Ausserrhoden Appenzell Innerrhoden St. Gallen Graubünden Aargau Thurgau Tessin Waadt Wallis Neuenburg Genf Jura Domain .ch .swiss
 
+For search engines / San Jose, California
+* California State Route 85, known in part as the West Valley Freeway and the Stevens Creek Freeway
+* California State Route 87, known in part as the Guadalupe Freeway
+* California State Route 130, known in part as Mount Hamilton Road and Alum Rock Avenue
+* State Route 82, also known as El Camino Real, after the historic El Camino Real
+* The Alameda — Spanish term for a public tree-lined avenue that translates in French to Boulevard. It refers to the stretch of historic road connecting Mission Santa Clara with the Pueblo of San Jose.
+* Alum Rock Avenue — named after the misidentified alum rock (thenardite mineral) and springs in the canyon at the end of Alum Rock Avenue; a continuation of El Camino Real, The Alameda and Santa Clara Street.
+* Asbury — named after Methodist Bishop Francis Asbury
+* Arroyo de Oro — Spanish for Gold Creek
+* Auzerais Avenue — named after John Auzerais, an early San Jose pioneer. Originally called Sainsevain Street
+* Bailey Avenue — There are two streets called Bailey Avenue in the area. The one nearest Morgan Hill is named after Boanerges R. Bailey
+* Balbach Street — named after John Balbach, owner of Pioneer Carriage Manufacturing in 1864
+* Balboa Avenue — named after Spanish explorer Vasco Núñez de Balboa
+* Bascom Avenue — Ana Maria and her husband Lewis Hazelton Bascom
+* Bassett Street — named after Southern Pacific Railroad Superintendent Almeron C. Bassett.
+* Bernal Road — named after Ygnacio Bernal's 400 acres of fruit and vegetable farmland in southeast San Jose.
+* Berryessa Road — named after San Jose pioneer Nicholas Berryessa and his descendants.
+* Bird Avenue — named after Isaac and Calvert Bird, who lived in the area.
+* Blach Place — named after Michael S. Blach, the founder of Blach Construction Company
+* Blossom Hill Road — The original section of Blossom Hill Road, between today's Los Gatos Boulevard and Camden Avenue, that runs along the base of Blossom Hill, in turn named for the scenic blossoms from the vast orchards that once dominated the landscape.The road was extended in the 1950s and 1960s over portions of Kooser Road and Downer Avenue.
+* Bollinger Road — named after Christian Bollinger, who was born in Bollinger County, Missouri in 1817 and ended up farming 184 acres on Saratoga Avenue in 1883.
+* Booksin Avenue — named after early pioneer Henry Booksin, who owned fruit orchards in the Willows of Santa Clara County.
+* Branham Lane — named after early pioneer Isaac Branham, who settled the area in 1846.
+* Cahill Street — named after Hiram B. Cahill's five-acre home. The Diridon train station at this location was previously named Cahill Depot.
+* Camden Avenue — An abbreviation of Campbell to New Almaden Mine. In 1886 the South Pacific Coast Railroad built the Camden Branch, a spur from its Oakland-Santa Cruz line to serve the quicksilver mines at New Almaden; this line was abandoned in the 1930s, and Camden Avenue follows this right-of-way from today's Winchester Boulevard to Kooser Road.[4] Previously called Railroad Avenue.
+* Canoas Garden Avenue — named after the Canoas Creek. Canoas is Portuguese for "canoe".
+* Chaboya Road — named after Antonio Chabolla in 1833.
+* Chapman Street — named after W. S. Chapman, who partnered with Moses Davis in selling the original housing lots in the Rose Garden neighborhood, then called Poplar City.
+* Cinnabar Street — named after the mineral cinnabar, mined in the nearby New Almaden area, from, which elemental mercury (quicksilver) was derived and used to extract gold during the California Gold Rush.
+* Cleaves Avenue — named after San Jose pioneers Jeremiah and Margaret Cleaves, who lived on The Alameda.
+* Cleveland Avenue — named in honor of United States President Grover Cleveland
+* Coe Avenue — named after Henry Willard Coe, Sr., a trader in mining supplies who bought 150 acres in the Willows of Santa Clara County.
+* Cory Avenue — named after Doctor Benjamin Cory, the first medical practitioner in Santa Clara County in 1847.
+* Cottle Avenue (not to be confused with Cottle Road) — named after Frank Cottle, who bought the Willows Orchard in 1883 from his father, Royal Cottle.
+* Cottle Road — named after Warren Cottle, whose ranch bordered Monterey and Snell Roads.
+* Cunningham Avenue — The street, park and man-made flood control lake are named after James F. Cunningham.
+* Curtner Avenue — named after Henry and Lucy Curtner, early San Jose pioneers. It was also called Casey Road, after the Lewis Casey family, but renamed Curtner Avenue when they connected.
+* Dana Avenue — named after the Dana farm, which was purchased by the city for schools.
+* Davis Street — named after Moses Davis, who partnered with W. S. Chapman in selling the original housing lots in the Rose Garden neighborhood, then called Poplar City.
+* De Mattei Court — named after Michael De Mattei of San Jose Ravenna Paste Company
+
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
