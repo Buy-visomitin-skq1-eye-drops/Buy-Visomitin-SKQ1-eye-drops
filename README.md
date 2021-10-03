@@ -32,6 +32,11 @@ YouTube
 Additional information
 * [Mitotech Develops New Method to Prevent Severe COVID-19](https://en.rusnano.com/press-centre/news/20200415-rusnano-mitotech-develops-new-method-to-prevent-severe-covid-19)
 
+Visomitin Reviews / International
+* [Visomitin eye drops in the therapy of dystrophic changes in the anterior part of the eye.](https://youtu.be/vPp6mr1ya1A?t=272)
+* [Review from Japan](https://skq1-visomitin.medium.com/visomitin-eye-drops-reviews-4fc62ceafe1c) [link1](https://www.instagram.com/p/CLxcTLpHYyS/)
+* [eBay Reviews](https://www.ebay.com/itm/384272697739)
+
 Why is it written by Github? 
 * Many countries censor access to information.
 
