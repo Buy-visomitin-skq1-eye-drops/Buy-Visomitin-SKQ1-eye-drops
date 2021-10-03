@@ -142,6 +142,38 @@ For search engines / San Jose, California
 * Locust Street — named after the honey locust tree, one of many streets in the area named after tree types.
 * Luther — named after Luther Burbank a famous American botanist, who helped Santa Clara Valley's fruit industry.
 * Magellan — named after Portuguese Explorer Ferdinand Magellan
+* Magnolia Avenue — named after the Magnolia Trees that were originally planted along the street when the original lots were sold by Charles M. Schiele
+* Mariposa Avenue — Spanish for Butterfly. Named after Mariposa Grove a sequoia grove next to Yosemite (which is also a parallel street to Mariposa Avenue in the Hanchett Residence Park.
+* Martin Avenue — named after John Martin, a business partner of Lewis Hanchett and their Hanchett Residence Park development where the street is
+* Maybury Road — named after Frank Maybury, an early farmer, who owned a 63-acre farm where the road is today.
+* McAbee Road — named after gopher trap inventor Zephyr Macabee, whose 1890 traps are still sold today
+* McDaniel Avenue — named after Josiah Jennings McDaniel a Confederate soldier, who married local Amanda Fine and set up their 4-acre family farm ran along Union Avenue (now called Park Avenue) where the street is today
+* McKee — named after Joseph Olcott McKee, who had a farm in the area. He and his father were responsible for helping physically move the state capitol from San Jose to Vallejo.
+* McKendrie — named after Methodist Bishop William McKendree
+* McLaughlin Avenue — named after Edward and Adelia McLaughlin, who moved to the area from Grass Valley
+* Melrose Avenue — Latin for "honey rose" (sweet and beautiful)
+* Meridian Avenue — so named because the section from Park Avenue to near Curtner Avenue aligns with the Mount Diablo Meridian
+* Mission Street — named after the California Missions.
+* Montague Expressway — named after 1870s Millionaire Wilford Weed Montague's 400-acre "Riverside Farm" where the original Montague Road (between today's Lafayette Street and North First Street) ran along the northern edge
+* Montgomery Street — named after T. S. Montgomery, a San Jose real estate developer, whose property, hotel and railroad interests are nearby
+* Moorpark Avenue — named after the Moorpark apricot imported from England in 1854 by D. C. Vestal, once a major cash crop in Santa Clara County
+* Moore Street — named after Judge John Moore, renamed Idaho Street in 1933[13] to reduce confusion with Morse cross street. Shown on an early map as "More" street
+* Morrison Avenue — named after early San Jose Mayor James Morrison.
+* Morse Street — named after Santa Clara resident Charles Copeland Morse, who founded the Ferry-Morse Seed Company in 1884
+* Muller Place — the Muller family, who owned Lou's Village Restaurant and property around it from 1946-2006.
+* Naglee Avenue — Union General Henry Morris Naglee
+* Newhall Street — named after Henry Mayo Newhall, a founder of the San Francisco to San Jose Railroad company
+* Park Avenue — Originally named Union Avenue during the Civil War when the South Side Railroad ran along it. Was later renamed Park Avenue when Hanchett Residence Park was developed in 1907.
+* Parkmoor Avenue — A play on names of Moorpark Avenue (named after an apricot variety), a nearby parallel street on the other side of Interstate 280.
+* Pearl Avenue — named after John Quincy Pearl, who owned 600 acres of the Almaden Valley in 1852
+* Pellier Avenue & Court — named after Louis Pellier, who founded Santa Clara Valley's prune industry using French prune cuttings and techniques.
+* Pershing Avenue — named after famed Brigadier General John J. Pershing, who led San Francisco Presidio's 8th Brigade in pursuit of Pancho Villa.
+* Phelan Avenue — named after James Duval Phelan, California's first popular elected senator.
+* Polhemus — named after Charles Bispham Polhemus, an early San Jose railroad pioneer that owned the land that would later become Atherton, Millbrae & Menlo Park. Renamed Taylor Avenue in 1960.
+* Portal Court & Portal Way — named after Louis Portal, who owned 400 acres of vineyards in San Jose.
+* Race Street (and Race Park) — named after Agricultural Park and the racetrack within it. The county park was later sold and developed into the Shasta Hanchett Park neighborhood.
+* Randol Avenue — named after James B. Randol, manager of the New Alamen Quicksilver Mine, who was part owner of the Dougherty-Randol Tract where the street is.
+
 
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
