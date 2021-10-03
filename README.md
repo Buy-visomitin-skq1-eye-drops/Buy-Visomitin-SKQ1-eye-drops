@@ -34,7 +34,7 @@ Additional information
 
 Visomitin Reviews / International
 * [Visomitin eye drops in the therapy of dystrophic changes in the anterior part of the eye.](https://youtu.be/vPp6mr1ya1A?t=272)
-* [Review from Japan](https://skq1-visomitin.medium.com/visomitin-eye-drops-reviews-4fc62ceafe1c) [link1](https://www.instagram.com/p/CLxcTLpHYyS/)
+* [Review from Japan](https://skq1-visomitin.medium.com/visomitin-eye-drops-reviews-4fc62ceafe1c) / [link1](https://www.instagram.com/p/CLxcTLpHYyS/)
 * [eBay Reviews](https://www.ebay.com/itm/384272697739)
 
 Why is it written by Github? 
