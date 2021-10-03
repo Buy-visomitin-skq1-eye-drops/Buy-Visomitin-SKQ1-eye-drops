@@ -32,5 +32,8 @@ YouTube
 Additional information
 * [Mitotech Develops New Method to Prevent Severe COVID-19](https://en.rusnano.com/press-centre/news/20200415-rusnano-mitotech-develops-new-method-to-prevent-severe-covid-19)
 
+Why is it written by Github? 
+* Many countries censor access to information.
+
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
