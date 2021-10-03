@@ -21,10 +21,10 @@ Lomonosov Moscow State University
   * [Max Skulachev](https://istina.msu.ru/profile/maxim.skulachev/)
   * [MSU SKQ1](https://www.msu.ru/search.html?q=SKQ1&how=r)
   * [MSU Vizomitin](https://www.msu.ru/search.html?q=%D0%92%D0%B8%D0%B7%D0%BE%D0%BC%D0%B8%D1%82%D0%B8%D0%BD&how=r)
-  
 
-
-
+Web of Science ResearcherID
+* [Vladimir P. Skulachev](https://publons.com/researcher/2694226/vladimir-p-skulachev/)
+* [Max Skulachev](https://publons.com/researcher/3187199/maxim-skulachev/)
 
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
