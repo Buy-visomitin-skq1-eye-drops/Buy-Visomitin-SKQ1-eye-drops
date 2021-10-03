@@ -101,6 +101,47 @@ For search engines / San Jose, California
 * Dana Avenue — named after the Dana farm, which was purchased by the city for schools.
 * Davis Street — named after Moses Davis, who partnered with W. S. Chapman in selling the original housing lots in the Rose Garden neighborhood, then called Poplar City.
 * De Mattei Court — named after Michael De Mattei of San Jose Ravenna Paste Company
+* Delmas Avenue (downtown San Jose) — Antoine Delmas, who owned the French Gardens tract
+* Di Fiore Drive — named after the Di Fiore family and their cannery and orchard operations in the nearby Burbank neighborhood.
+* Donohue Drive — named after Peter Donahue (businessman), who built the San Francisco to San Jose Railroad company.
+* Dry Creek Road — named after the flood of 1866 that changed the flow of the Los Gatos Creek, turning this section into a dry creek river bed, later converted to a roadway
+* Eastus Drive — named after San Jose Deputy City Manager, John Eastus
+* Emory Street — named after Methodist Bishop John Emory
+* Fiesta Lane — named after the Fiesta Lane Bowling Alley that used to be at this location.
+* Flickinger Avenue — named after Joseph H. Flickinger and his Orchard Cannery.
+* Fowler Road — named after abolitionist Andrew Jackson Fowler's 173-acre ranch, which he bought in 1867.
+* Fox Avenue — named after Bernard S. Fox, who was Commodore Stockton's tree nurseryman at the Stockton Ranch in 1852, or possibly his nephew Richard D. Fox.
+* Forbes Drive — named after James Alexander Forbes, who owned the New Almaden Quicksilver Mine and helped to establish Santa Clara College.
+* Le Franc Drive — named after Charles Lefranc
+* Fremont Street — named after John C. Frémont, who served under Commodore Stockton in the Mexican–American War and became California's First Military Governor.
+* Gion Avenue — Thomas Gion
+* Gish Road — named after David Ellison Gish's farm, which he purchased in 1851 after giving up on gold mining.
+* Goodwin Avenue — named after San Jose City Manager C. B. Goodwin
+* Goodyear Street — named after Miles Goodyear, who owned 30 acres in the area.
+* Graham Avenue — named after John (Jack) Martin Graham, a baseball columnist for the San Jose Mercury Herald. The street is where the baseball grandstands used to be.
+* Hamilton Avenue — named after Zeri Hamilton, an early San Jose pioneer, who bought the property off Meridian Avenue in 1850.
+* Hamline Street — named in honor of Methodist Episcopal Bishop Leonidas Lent Hamline in 1866.
+* Harding Avenue — named after United States President Warren G. Harding, who died while visiting the West Coast.
+* Harwood Road — named after G. M. Harwood, who planted a vineyard at this site
+* Hedding Street — named after Methodist Bishop Elijah Hedding[1] Rosa Street was connected to and renamed Hedding Street
+* Hensley Street — Samuel Hensley
+* Hester Avenue — named after the Honorable Craven P. Hester, an early Judge in San Jose, whose home was nearby on the Alameda
+* Hobson Street — named after George Hobson, San Jose's First Milk Man. Also owned the property where Valley Medical Hospital is
+* Hoover Avenue — named after American President Herbert Hoover and famed first class of students at Stanford University.
+* Idaho Street — originally named Moore Street, renamed Idaho Street in 1933
+* Jackson Street — named after United States President Andrew Jackson
+* Julian Street — Captain Julian Hanks resident of early Pueblo San Jose.
+* Keeble Avenue — named after local orchard owners and brothers Edward and Richard Keeble, the largest green fruit shipper in America.
+* King Road — named after Andrew Lewis King, who settled in San Jose in 1851. There were plans to rename it Martin Luther King Jr. Road
+* Lawrence Expressway — Originally Lawrence Station Road, named after the Lawrence Railroad Station in 1863, which was named after Albert Chester Bull, who changed his name to Lawrence by an act of Massachusetts law
+* Leigh Avenue — named after H. A. Leigh
+* Lenzen Avenue — named after San Jose's first and most prolific architect Theodore Lenzen
+* Lester Avenue — named after Nathan L. Lester, who had a home on nearby Lincoln Avenue.
+* Lightstone Alley — named after Franz Lichtenstein (Frank Lightston), who own most of the area and operated the first store in San Jose with Charles Weber.
+* Lindbergh Avenue — named in honor of American aviator Charles Lindbergh
+* Locust Street — named after the honey locust tree, one of many streets in the area named after tree types.
+* Luther — named after Luther Burbank a famous American botanist, who helped Santa Clara Valley's fruit industry.
+* Magellan — named after Portuguese Explorer Ferdinand Magellan
 
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
