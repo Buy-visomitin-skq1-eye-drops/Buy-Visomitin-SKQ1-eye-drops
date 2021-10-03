@@ -12,9 +12,16 @@ The presence of SkQ1 in the mitochondrial membrane enables mitochondria to prote
  * Cataract
  * Glaucoma
  
+ ResearchGate
+ * [Vladimir P. Skulachev](https://www.researchgate.net/scientific-contributions/Vladimir-P-Skulachev-2122822553)
+ * [Max Skulachev](https://www.researchgate.net/profile/Max-Skulachev)
 
-
-
+Lomonosov Moscow State University 
+  * [Vladimir P. Skulachev](https://istina.msu.ru/profile/VPSkulachev/)
+  * [Max Skulachev](https://istina.msu.ru/profile/maxim.skulachev/)
+  * [MSU SKQ1](https://www.msu.ru/search.html?q=SKQ1&how=r)
+  * [MSU Vizomitin](https://www.msu.ru/search.html?q=%D0%92%D0%B8%D0%B7%D0%BE%D0%BC%D0%B8%D1%82%D0%B8%D0%BD&how=r)
+  
 
 
 
