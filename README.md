@@ -26,5 +26,8 @@ Web of Science ResearcherID
 * [Vladimir P. Skulachev](https://publons.com/researcher/2694226/vladimir-p-skulachev/)
 * [Max Skulachev](https://publons.com/researcher/3187199/maxim-skulachev/)
 
+YouTube
+* [Max Skulachev](https://youtu.be/77q1nkKUkJI)
+
 <!--
 **Buy-visomitin-skq1-eye-drops/Buy-Visomitin-SKQ1-eye-drops** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
